@@ -1,0 +1,1 @@
+# Analise-das-Plataformas-de-Streaming
